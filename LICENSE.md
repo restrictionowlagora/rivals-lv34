@@ -1,4 +1,4 @@
-
+Download secure rivals Scripts for rivals, the best script available, featuring custom skins and silent aim. This powerful tool ensures you have the upper hand in every match,
 
 
 
